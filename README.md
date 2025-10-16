@@ -107,3 +107,18 @@ Algunos de sus proyectos más conocidos incluyen:
 1. **Toyota Supra V12 Top Secret**: equipado con un motor V12 de Toyota Century, modificado con biturbo, capaz de superar los 1000 CV
 2. **Nissan Skyline GT-R “Top Secret R33”**: uno de los primeros GT-R en romper la barrera de los 300 km/h.
 3. **Silvia S15 y R34 Gold**: autos emblemáticos de exhibición con acabados dorados metálicos, símbolo de su marca.
+___
+
+***La hazaña de los 320 km/h en Reino Unido*** &#128659;
+
+La historia que convirtió a Smokey en leyenda sucedió en 1998, en una noche fría del Reino Unido.
+Durante una exhibición automotriz, <span style="color:blue">Smokey llevó un Toyota Supra modificado con más de 900 CV al tramo de la autopista A1(M) cerca de York.</span>
+
+
+Allí, frente a un grupo reducido de testigos, alcanzó más de 320 km/h (200 mph)… ¡en plena vía pública!\
+A los pocos minutos fue arrestado por la policía británica por conducción peligrosa.\
+Le retiraron el carnet internacional y fue deportado, pero su nombre quedó inmortalizado en la historia del JDM.
+>El titular de la epoca decía:\
+>*“Japanese tuner caught doing 200mph on British highway.”*\
+>[HAZ CLICK SI QUIERES VER MÁS DE DETALLES DE LA NOTICIA](https://www.diariomotor.com/noticia/reino-unido-smokey-nagata-toyota-supra/)
+
